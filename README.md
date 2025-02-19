@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bennyblanco9116
-- 👀 I’m interested in Cybersecurity and Human health 
+- 👀 I’m interested in Cybersecurity,computer science and Human health 
 - 🌱 I’m currently learning Computer science 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Message ~blanco~• on WhatsApp. https://wa.me/254740915718
